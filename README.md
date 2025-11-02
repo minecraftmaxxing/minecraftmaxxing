@@ -11,3 +11,7 @@
   <p align="center">
   <img src=https://i.imgur.com/wTbGdQ7_d.webp?maxwidth=760&fidelity=grand>
 </p>
+<p align="center">
+  🇵🇷 / 🇺🇸
+  <p align="center">
+  I love all my friends <3
