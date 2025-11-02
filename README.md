@@ -9,5 +9,5 @@
 <p align="center">
   8teen
   <p align="center">
-  <img src=https://imgur.com/a/pvE2BqH?maxwidth=760&fidelity=grand>
+  <img src=https://imgur.com/a/pvE2BqH.webp?maxwidth=760&fidelity=grand>
 </p>
