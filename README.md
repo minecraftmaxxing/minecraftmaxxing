@@ -4,3 +4,10 @@
 
 <p align="center">
   Finn / Angel
+<p align="center">
+  He / Him
+<p align="center">
+  8teen
+  <p align="center">
+  <img src=https://i.imgur.com/aMjtCVf_d.webphttps://imgur.com/a/pvE2BqH?maxwidth=760&fidelity=grand>
+</p>
