@@ -9,7 +9,7 @@
 <p align="center">
   8teen
   <p align="center">
-  <img src=https://i.imgur.com/wTbGdQ7_d.webp?maxwidth=760&fidelity=grand>
+  <img src=https://i.imgur.com/wTbGdQ7_d.webp?maxwidth=350&fidelity=grand>
 </p>
 <p align="center">
   🇵🇷 / 🇺🇸
