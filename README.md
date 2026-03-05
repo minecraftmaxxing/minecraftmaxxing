@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-  Finn / Angel
+  Vin / Angel
 <p align="center">
   He / Him
 <p align="center">
