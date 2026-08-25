@@ -15,3 +15,7 @@
   🇵🇷 / 🇺🇸
   <p align="center">
   I love all my friends <3
+  <p align="center">
+  Under 16 I do not want to be ur friend
+  <p align="center">
+  I block freely. Dont ask me to unblock you.
