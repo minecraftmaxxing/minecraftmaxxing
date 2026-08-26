@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-  Vin / Angel
+  Vin or Nine
 <p align="center">
   He / Him
 <p align="center">
