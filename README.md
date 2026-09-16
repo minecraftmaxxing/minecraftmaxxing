@@ -19,3 +19,5 @@
   Under 16 I do not want to be ur friend
   <p align="center">
   I block freely. Dont ask me to unblock you.
+  <p align="center">
+  I dont fb spam followers. I will only follow you back if I think youre cool :-)
