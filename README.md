@@ -14,7 +14,7 @@
 <p align="center">
   🇵🇷 / 🇺🇸
   <p align="center">
-  I love all my friends <3
+  I love all my friends <3 INCLUDING the ones not linked :-)
   <p align="center">
   Under 16 I do not want to be ur friend
   <p align="center">
