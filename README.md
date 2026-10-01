@@ -9,6 +9,8 @@
 <p align="center">
   9teen
   <p align="center">
+  Please do not use tonetags on me. I dont need them
+  <p align="center">
   Minecraft special interest , 2015 - Forever <3
   <p align="center">
   <img src=https://i.imgur.com/wTbGdQ7_d.webp?maxwidth=350&fidelity=grand>
