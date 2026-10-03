@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-  Vin or Nine
+  Vincent or Nine
 <p align="center">
   He / She
 <p align="center">
