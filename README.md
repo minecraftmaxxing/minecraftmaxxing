@@ -25,3 +25,5 @@
   I block freely. Dont ask me to unblock you.
   <p align="center">
   I dont fb spam followers. I will only follow you back if I think youre cool :-)
+  <p align="center">
+  i actually didnt exist prior to 2026 so if you met me before 2026 it was a prank
