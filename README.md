@@ -1,5 +1,6 @@
 <p align="center">
-  <img src=https://i.imgur.com/aMjtCVf_d.webp?maxwidth=500&fidelity=grand>
+  <img width="400" height="400" alt="Untitled693_20261029175916" src="https://github.com/user-attachments/assets/25324733-58a4-441d-afc2-4fa983eb027c" />
+
 </p>
 
 <p align="center">
@@ -13,7 +14,7 @@
   <p align="center">
   Minecraft special interest , 2015 - Forever <3
   <p align="center">
-  <img src=https://i.imgur.com/wTbGdQ7_d.webp?maxwidth=350&fidelity=grand>
+  <img width="640" height="106" alt="Untitled312_20251102151202" src="https://github.com/user-attachments/assets/57067cd3-17cd-44e2-9c41-7c882f66ae38" />
 </p>
 <p align="center">
   🇵🇷 / 🇺🇸
