@@ -14,6 +14,8 @@
   <p align="center">
   Minecraft special interest , 2015 - Forever <3
   <p align="center">
+  PLEASE do not use the art in my github. Hes my sona, not a fandom character.
+  <p align="center">
   <img width="640" height="106" alt="Untitled312_20251102151202" src="https://github.com/user-attachments/assets/57067cd3-17cd-44e2-9c41-7c882f66ae38" />
 </p>
 <p align="center">
