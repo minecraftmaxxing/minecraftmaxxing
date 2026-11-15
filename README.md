@@ -18,7 +18,7 @@
   <p align="center">
   PLEASE do not use, trace, or repost the art in my github. He is my personal sona, not a fandom character.
   <p align="center">
-  <img width="640" height="106" alt="Untitled312_20251102151202" src="https://github.com/user-attachments/assets/57067cd3-17cd-44e2-9c41-7c882f66ae38" />
+  <img width="2048" height="817" alt="Untitled283_20261113123110" src="https://github.com/user-attachments/assets/a2fc2f4a-6052-4e11-987b-e608d3c37db6" />
 </p>
 <p align="center">
   🇵🇷 / 🇺🇸
