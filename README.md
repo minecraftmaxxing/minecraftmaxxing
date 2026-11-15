@@ -21,7 +21,7 @@
   <img width="2048" height="817" alt="Untitled283_20261113123110" src="https://github.com/user-attachments/assets/a2fc2f4a-6052-4e11-987b-e608d3c37db6" />
 </p>
 <p align="center">
-  🇵🇷 / 🇺🇸
+  American , EST
   <p align="center">
   I love all my friends <3 INCLUDING the ones not linked :-)
   <p align="center">
