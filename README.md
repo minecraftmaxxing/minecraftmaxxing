@@ -20,6 +20,8 @@
   <p align="center">
   <img width="2048" height="817" alt="Untitled283_20261113123110" src="https://github.com/user-attachments/assets/a2fc2f4a-6052-4e11-987b-e608d3c37db6" />
 </p>
+  <p align="center">
+  Banner by Ren / @reniscute <3
 <p align="center">
   American , EST
   <p align="center">
